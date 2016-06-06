@@ -1,2 +1,1 @@
-Zydrick Delima
-BSCS '13
+Zydrick
